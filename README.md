@@ -10,4 +10,4 @@ Mehmet ÇOLAK
 
 Arda ALHAN
 
-Sunum Videosu: 
+Sunum Videosu: https://www.youtube.com/watch?v=5rcOpZ2GI0k
